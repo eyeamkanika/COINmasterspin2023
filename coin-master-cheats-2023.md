@@ -144,4 +144,5 @@ https://datastudio.google.com/reporting/807f91b2-a178-474e-b9e4-15fc5bfae06d
 https://datastudio.google.com/s/ml44ZXyFB-E
 https://datastudio.google.com/reporting/fb974a55-a22e-4067-9739-8782fc82df89
 
-
+[escorts service in bangalore](https://escortservicesinbangalore.com/)
+[bangalore escorts](https://www.bestbangaloreescorts.in/)
